@@ -16,6 +16,12 @@
 
 [**Web3 y metaverso: ¿en qué se diferencian?**](https://www.santander.com/es/stories/web3-vs-metaverso)
 
+[**Las empresas españolas que triunfan en el metaverso**](https://forbes.es/empresas/186259/las-empresas-espanolas-que-triunfan-en-el-metaverso/)
+
+[**Metaverso, activos digitales e innovación sostenible: las tendencias que marcarán el desarrollo tecnológico según Mastercard**](https://www.mastercard.com/news/europe/es-es/noticias/notas-de-prensa/es-es/2022/octubre/metaverso-activos-digitales-e-innovacion-sostenible-las-tendencias-que-marcaran-el-desarrollo-tecnologico-segun-mastercard/)
+
+[**The journey into building the XR & Metaverse economy: challenges and opportunities**](https://www.marketinginsiderreview.com/dtt-data-retos-economia-metaverso-evento-fyuz-2022/)
+
 ## LIBROS
 
 [**Why the Metaverse is the future of employee training and onboarding - XR RESOURCES | E-BOOK**](https://synergyxr.com/wp-content/uploads/2022/08/why-the-metaverse-is-the-future-of-employee-training.pdf)
