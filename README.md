@@ -1,6 +1,5 @@
 ## CURSOS
-
-[**The metaverse explained in 14 minutes | Matthew Ball**](https://www.youtube.com/watch?v=4S-4mTvK4cI): ¿Por qué alguien debería preocuparse por el metaverso? El experto Matthew Ball explica qué es, qué no es y por qué es importante.
+[**Metaverso, Blockchain y NFT en Marketing**](https://skiller.education/curso-de-metaverso-blockchain-nft/): próxima edición 22 de noviembre de 2022.
 
 ## EVENTOS
 
@@ -8,7 +7,7 @@
 
 ## VIDEOS
 
-[**Metaverso, Blockchain y NFT en Marketing**](https://skiller.education/curso-de-metaverso-blockchain-nft/): próxima edición 22 de noviembre de 2022.
+[**The metaverse explained in 14 minutes | Matthew Ball**](https://www.youtube.com/watch?v=4S-4mTvK4cI): ¿Por qué alguien debería preocuparse por el metaverso? El experto Matthew Ball explica qué es, qué no es y por qué es importante.
 
 ## WEBS RECOMENDADAS
 
