@@ -1,10 +1,14 @@
 ## CURSOS
 
-[**Metaverso, Blockchain y NFT en Marketing**](https://skiller.education/curso-de-metaverso-blockchain-nft/): próxima edición 22 de noviembre de 2022.
+[**The metaverse explained in 14 minutes | Matthew Ball**](https://www.youtube.com/watch?v=4S-4mTvK4cI): ¿Por qué alguien debería preocuparse por el metaverso? El experto Matthew Ball explica qué es, qué no es y por qué es importante.
 
 ## EVENTOS
 
 [**Presentación del libro "Metaverso"**](https://www.eventbrite.es/e/entradas-metaverso-un-viaje-mas-alla-de-la-realidad-444557010987?aff=ebdssbdestsearch): Conoce los orígenes, los pilares, los límites que ha roto este mundo virtual y el mundo que se avecina en la presentación del libro Metaverso. Pioneros en un viaje más allá de la realidad, de Edgar Martín-Blas, precursor del metaverso y fundador de una empresa de referencia en el sector.
+
+## VIDEOS
+
+[**Metaverso, Blockchain y NFT en Marketing**](https://skiller.education/curso-de-metaverso-blockchain-nft/): próxima edición 22 de noviembre de 2022.
 
 ## WEBS RECOMENDADAS
 
