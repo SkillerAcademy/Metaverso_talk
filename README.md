@@ -27,6 +27,10 @@
 
 ## LIBROS
 
+[**Opportunities in the metaverse - JP Morgan**](https://www.jpmorgan.com/content/dam/jpm/treasury-services/documents/opportunities-in-the-metaverse.pdf)
+
+[**Learning in the Metaverse: A Guide for Practitioners - Daniel Pimentel**](https://www.researchgate.net/publication/360851863_Learning_in_the_Metaverse_A_Guide_for_Practitioners)
+
 [**Why the Metaverse is the future of employee training and onboarding - XR RESOURCES | E-BOOK**](https://synergyxr.com/wp-content/uploads/2022/08/why-the-metaverse-is-the-future-of-employee-training.pdf)
 
 [**Metaverse Made Simple- Archi Mackfly**](https://www.free-ebooks.net/business/Metaverse-Made-Simple)
