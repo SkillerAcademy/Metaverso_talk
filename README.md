@@ -3,6 +3,8 @@
 
 ## EVENTOS
 
+[**Helixa Summit**](https://www.ifema.es/helixa/summit): El Metaverso será el gran protagonista de Helixa Summit, el evento sobre industria 4.0., automatización, inteligencia artificial y robótica que se celebra entre el 30 de noviembre y 1 de diciembre en IFEMA Madrid, que organiza este consorcio junto a IPG Mediabrands, en colaboración con INMERSIVA XR, Asociación de Realidad Extendida de España.
+
 [**Presentación del libro "Metaverso"**](https://www.eventbrite.es/e/entradas-metaverso-un-viaje-mas-alla-de-la-realidad-444557010987?aff=ebdssbdestsearch): Conoce los orígenes, los pilares, los límites que ha roto este mundo virtual y el mundo que se avecina en la presentación del libro Metaverso. Pioneros en un viaje más allá de la realidad, de Edgar Martín-Blas, precursor del metaverso y fundador de una empresa de referencia en el sector.
 
 ## VIDEOS
