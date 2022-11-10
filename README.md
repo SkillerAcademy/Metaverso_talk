@@ -3,9 +3,11 @@
 
 ## EVENTOS
 
+[**¿Cómo se crea un (Meta)universo desde cero?**](https://becarios.fundacionlacaixa.org/es/web/guest/actividades/como-se-crea-un-meta-universo-desde-cero-?utm_source=ig&utm_medium=cpc&utm_campaign=plan-editorial&utm_content=plan-editorial-becarios&utm_term=712566&fbclid=PAAaZXP_FtKlgOHMN918HPrnLee09AP6weCu1xImbK53mbBRFosSr3YUnGXbw&external_browser_redirect=true): ¿Qué es exactamente el metaverso? ¿Será una revolución como lo fue en su día internet? ¿Se librarán los avatares de acciones delictivas? ¿Qué puede ofrecernos? El próximo 17 de noviembre, a las 18 h CET.
+
 [**Helixa Summit**](https://www.ifema.es/helixa/summit): El Metaverso será el gran protagonista de Helixa Summit, el evento sobre industria 4.0., automatización, inteligencia artificial y robótica que se celebra entre el 30 de noviembre y 1 de diciembre en IFEMA Madrid, que organiza este consorcio junto a IPG Mediabrands, en colaboración con INMERSIVA XR, Asociación de Realidad Extendida de España.
 
-[**Presentación del libro "Metaverso"**](https://www.eventbrite.es/e/entradas-metaverso-un-viaje-mas-alla-de-la-realidad-444557010987?aff=ebdssbdestsearch): Conoce los orígenes, los pilares, los límites que ha roto este mundo virtual y el mundo que se avecina en la presentación del libro Metaverso. Pioneros en un viaje más allá de la realidad, de Edgar Martín-Blas, precursor del metaverso y fundador de una empresa de referencia en el sector.
+[**Presentación del libro "Metaverso"**](https://www.eventbrite.es/e/entradas-metaverso-un-viaje-mas-alla-de-la-realidad-444557010987?aff=ebdssbdestsearch): Conoce los orígenes, los pilares, los límites que ha roto este mundo virtual y el mundo que se avecina en la presentación del libro Metaverso. Pioneros en un viaje más allá de la realidad, de Edgar Martín-Blas, precursor del metaverso y fundador de una empresa de referencia en el sector. 21 de noviembre a las 19:30h. AMBITO CULTURAL CORTE INGLES CALLAO 3, Calle de Preciados, 28003 - Madrid.
 
 ## VIDEOS
 
