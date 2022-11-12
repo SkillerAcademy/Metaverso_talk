@@ -3,6 +3,8 @@
 
 ## EVENTOS
 
+[**III Foro de Inteligencia Artificial & Metaverso**](https://lapublicidad.net/forointeligenciaartificial/): El foro está dirigido a agencias, desarrolladores y anunciantes que quieran conocer y ponerse al día sobre este apasionante tema. 22 de Noviembre 2022 en Callao City Lights, Madrid.
+
 [**¿Cómo se crea un (Meta)universo desde cero?**](https://becarios.fundacionlacaixa.org/es/web/guest/actividades/como-se-crea-un-meta-universo-desde-cero-?utm_source=ig&utm_medium=cpc&utm_campaign=plan-editorial&utm_content=plan-editorial-becarios&utm_term=712566&fbclid=PAAaZXP_FtKlgOHMN918HPrnLee09AP6weCu1xImbK53mbBRFosSr3YUnGXbw&external_browser_redirect=true): ¿Qué es exactamente el metaverso? ¿Será una revolución como lo fue en su día internet? ¿Se librarán los avatares de acciones delictivas? ¿Qué puede ofrecernos? El próximo 17 de noviembre, a las 18 h CET.
 
 [**Helixa Summit**](https://www.ifema.es/helixa/summit): El Metaverso será el gran protagonista de Helixa Summit, el evento sobre industria 4.0., automatización, inteligencia artificial y robótica que se celebra entre el 30 de noviembre y 1 de diciembre en IFEMA Madrid, que organiza este consorcio junto a IPG Mediabrands, en colaboración con INMERSIVA XR, Asociación de Realidad Extendida de España.
