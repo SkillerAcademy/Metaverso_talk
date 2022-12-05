@@ -54,3 +54,11 @@
 [**Metaverso y Cripto para principiantes - Adidas Wilson**](https://books.google.es/books?id=qlmIEAAAQBAJ&pg=PT33&dq=Metaverso&hl=es&sa=X&ved=2ahUKEwiHgdXJtID7AhUPkBoKHfxxCCEQ6AF6BAgJEAI#v=onepage&q=Metaverso&f=false)
 
 [**El metaverso para empresas: Oportunidades de negocio en el mundo virtual - Juanjo Ramos**](https://books.google.es/books?id=N7V3EAAAQBAJ&pg=PT11&dq=Metaverso&hl=es&sa=X&ved=2ahUKEwiHgdXJtID7AhUPkBoKHfxxCCEQ6AF6BAgEEAI#v=onepage&q=Metaverso&f=false)
+
+[**Qué es el Metaverso – Yen Gálvez**](https://www.amazon.es/dp/B09T63TDRN/?tag=insiderpickss-21&ga=insiderpicks)
+
+[**The Metaverse: Prepare Now For the Next Big Thing- Terry Winters**](https://www.amazon.es/dp/B09DMRF373/?tag=insiderpickss-21&ga=insiderpicks)
+
+[**Metaverse Investing for Beginners – Jonathan Andrews**](https://www.amazon.es/dp/B09WWCC59K/?tag=insiderpickss-21&ga=insiderpicks)
+
+[**Snow Crash de Neal Stephenson – Neal Stephenson**](https://www.amazon.es/Snow-Crash-Neal-Stephenson/dp/0241953189?tag=insiderpickss-21&ga=insiderpicks)
